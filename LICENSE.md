@@ -1,4 +1,4 @@
-#  
+#  Experience dandy's world like never before with rare dandy's world Script, the #1 Script. Includes no cooldown and aimbot for unbeatable performance.
 
 
 
